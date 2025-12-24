@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on advanced SEO, AI tools for marketing and business process optimization.<br>🤝 I’m looking for help with process automation, scalable systems, lead generation strategies and international partnerships.<br>👯 I’m looking to collaborate with digital marketing projects, WordPress websites, SEO, Google Ads and DevOps. <br>💬 Ask me about WordPress (Elementor, WooCommerce), SEO, Google Ads, startup operations, project management and construction & landscaping in the UK.<br>⚡ Fun fact, I’ve managed startups, construction projects and digital campaigns—often all at the same time 😄
+**🔭 I’m currently working on:** Advanced SEO, AI tools for marketing and business process optimization.<br>**🤝 I’m looking for help with:** Process automation, scalable systems, lead generation strategies and international partnerships.<br>**👯 I’m looking to collaborate with:** Digital marketing projects, WordPress websites, SEO, Google Ads and DevOps. <br>**💬 Ask me about:** WordPress (Elementor, WooCommerce), SEO, Google Ads, startup operations, project management and construction & landscaping in the UK.<br>**⚡ Fun fact:** I’ve managed startups, construction projects and digital campaigns—often all at the same time 😄
 
 
 ## 🌐 Socials:
